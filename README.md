@@ -9,7 +9,7 @@
 
 - 🌱 I’m currently learning **Coding**
 
-- 📫 How to reach me **wande.obasa@yahoo.com**
+- 📫 How to reach me **wande.obasa@gmail.com**
 
 - ⚡ Fun fact **I think I can fly**
 
